@@ -1,1 +1,2 @@
-astiti
+astitidimanapun beradaselalu
+=============================
