@@ -1,2 +1,2 @@
-astitidimanapun beradaselalu
-=============================
+astiti dimanapun berada selalu
+============================
